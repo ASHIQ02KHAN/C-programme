@@ -1,1 +1,1 @@
-Many functions are going to be added soon 
+follow me for new updates 
