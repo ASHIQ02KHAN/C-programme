@@ -1,1 +1,1 @@
-follow me for new updates 
+long way to go stay with me
