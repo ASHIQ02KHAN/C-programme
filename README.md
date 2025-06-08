@@ -1,1 +1,1 @@
-Sunday 
+monday
