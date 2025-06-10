@@ -1,1 +1,1 @@
-Wednesday 
+SECOND day
