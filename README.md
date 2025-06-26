@@ -1,1 +1,1 @@
-Home for sixth
+Home for seventh day
