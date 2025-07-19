@@ -1,1 +1,1 @@
-Home for thirty nine  four day fifty two
+Home for thirty then  day fifty Ninety home
