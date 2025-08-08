@@ -1,1 +1,1 @@
-new uploaded (patten 25)
+new uploaded (pat 30)
