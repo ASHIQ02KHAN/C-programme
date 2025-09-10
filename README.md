@@ -1,1 +1,1 @@
-new uploaded(pattern 90
+uploaded(pattern 90
